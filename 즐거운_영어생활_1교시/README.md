@@ -6,8 +6,11 @@ Wow, it looks nice. `Very Instagrammable!`
 Do you wanna go this weekend?  
 I'll pass. I'm gonna go with my boyfriend.  
 https://github.com/ziippy/English/blob/main/즐거운_영어생활_1교시/mp3/01-3.MP3?raw=true
-<<<<<<< HEAD
 
 ### 2. 자랑질 쩔어!
-=======
->>>>>>> d13ba448cb7325af9e8bdf72266634f3f7a58854
+Did you see her post on Instagram?
+I did. `She's so hashtag blessed`
+What's with her?
+All her posts are cringeworthy.
+https://github.com/ziippy/English/blob/main/즐거운_영어생활_1교시/mp3/02-3.MP3?raw=true
+
