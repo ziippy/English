@@ -14,3 +14,9 @@ What's with her?
 All her posts are cringeworthy.
 https://github.com/ziippy/English/blob/main/즐거운_영어생활_1교시/mp3/02-3.MP3?raw=true
 
+### 3. 너 좀 오버하는 거 아냐?
+I'm still feeling salty about last week.
+Just get over it.
+I blocked him on Facebook, Snapchat and Instagram.
+`Aren't you going a little too far?`
+https://github.com/ziippy/English/blob/main/즐거운_영어생활_1교시/mp3/03-3.MP3?raw=true
