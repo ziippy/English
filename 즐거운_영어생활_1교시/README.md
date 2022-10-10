@@ -28,3 +28,20 @@ I just pictured it. `LMAO` (Laughing My Ass Off. 즉, 엉덩이가 빠지게 웃
 What about you? What are you doing?  
 https://github.com/ziippy/English/blob/main/즐거운_영어생활_1교시/mp3/04-3.MP3?raw=true
 
+### 5. 나 핸드폰 요금 폭탄 맞았어.
+`My phone bill was super high this month.`  
+Who pays the bill?  
+I do. When I saw the bill, I really lost it.  
+What kind of phone plan do you have?  
+https://github.com/ziippy/English/blob/main/즐거운_영어생활_1교시/mp3/05-3.MP3?raw=true
+
+### More Expressions 1  
+BRB : Be right back, 금방 돌아올께  
+OMW : On my way, 가는 길이야  
+BTW : By the way, 아! 그건 그렇고~  
+G2G : Got to go, 가야 되겠어  
+left me on read : 읽씹했다. read 는 [red] 로 읽는다.  
+selfies : 셀카  
+photobomb : 사진의 의도를 망쳐버리는 무엇인가  
+It's Facebook official : 완전 공식적인 사실이야. 검증된 사실이야. 라는 의미 (Facebook 에 올려서 그런 게 아님)  
+
