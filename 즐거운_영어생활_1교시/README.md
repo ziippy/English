@@ -45,3 +45,9 @@ selfies : 셀카
 photobomb : 사진의 의도를 망쳐버리는 무엇인가  
 It's Facebook official : 완전 공식적인 사실이야. 검증된 사실이야. 라는 의미 (Facebook 에 올려서 그런 게 아님)  
 
+### 6. 이 날씨 실화냐? 완전 공감!
+It's boiling out here.  
+`Is this weather for real?` I can't concentrate.  
+`You said it.` Head to a cafe and continue?  
+You're buying, right?  
+https://github.com/ziippy/English/blob/main/즐거운_영어생활_1교시/mp3/06-3.MP3?raw=true
