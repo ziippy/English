@@ -51,3 +51,10 @@ It's boiling out here.
 `You said it.` Head to a cafe and continue?  
 You're buying, right?  
 https://github.com/ziippy/English/blob/main/즐거운_영어생활_1교시/mp3/06-3.MP3?raw=true
+
+### 7. 아니, 넌 계산
+I'll have an iced latte.  
+I want a hot Americano.  
+Okay then. I'll go grab a seat.  
+`No, you take care of the bill`
+https://github.com/ziippy/English/blob/main/즐거운_영어생활_1교시/mp3/07-3.MP3?raw=true
