@@ -58,3 +58,10 @@ I want a hot Americano.
 Okay then. I'll go grab a seat.  
 `No, you take care of the bill`
 https://github.com/ziippy/English/blob/main/즐거운_영어생활_1교시/mp3/07-3.MP3?raw=true
+
+### 8. 안 해봤으면 말을 마.
+Have you seen the show?  
+I bawled every episode.  
+I don't know what the big deal is.  
+`Don't knock it 'til you try it.`
+https://github.com/ziippy/English/blob/main/즐거운_영어생활_1교시/mp3/08-3.MP3?raw=true
