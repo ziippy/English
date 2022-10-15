@@ -65,3 +65,10 @@ I bawled every episode.
 I don't know what the big deal is.  
 `Don't knock it 'til you try it.`
 https://github.com/ziippy/English/blob/main/즐거운_영어생활_1교시/mp3/08-3.MP3?raw=true
+
+### 9. 큰 거야? (똥 마려워?)
+I have an upset stomach.  
+`Do you need to go number two?`  
+It't not that. I think I have food poisoning.  
+Did you eat anything without me?  
+https://github.com/ziippy/English/blob/main/즐거운_영어생활_1교시/mp3/09-3.MP3?raw=true
