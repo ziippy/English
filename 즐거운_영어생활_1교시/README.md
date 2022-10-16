@@ -72,3 +72,10 @@ I have an upset stomach.
 It't not that. I think I have food poisoning.  
 Did you eat anything without me?  
 https://github.com/ziippy/English/blob/main/즐거운_영어생활_1교시/mp3/09-3.MP3?raw=true
+
+### 10. 현타 오게 하지 마.
+The forecast is calling for snow this weekend.  
+Oh, it'll be the first snow of the year. How exciting!  
+It's not like you have a date.  
+`I don't need a reality check.`
+https://github.com/ziippy/English/blob/main/즐거운_영어생활_1교시/mp3/10-3.MP3?raw=true
