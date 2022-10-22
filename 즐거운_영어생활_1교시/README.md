@@ -35,7 +35,8 @@ I do. When I saw the bill, I really lost it.
 What kind of phone plan do you have?  
 https://github.com/ziippy/English/blob/main/즐거운_영어생활_1교시/mp3/05-3.MP3?raw=true
 
-### More Expressions 1  
+### More Expressions 1
+*SNS 라이프*  
 BRB : Be right back, 금방 돌아올께  
 OMW : On my way, 가는 길이야  
 BTW : By the way, 아! 그건 그렇고~  
@@ -79,3 +80,18 @@ Oh, it'll be the first snow of the year. How exciting!
 It's not like you have a date.  
 `I don't need a reality check.`
 https://github.com/ziippy/English/blob/main/즐거운_영어생활_1교시/mp3/10-3.MP3?raw=true
+
+### More Expressions 2  
+*날씨 및 컨디션,감정*  
+I'm feeling under the weather. 몸이 좀 안 좋네.
+I'm freezing my face off. 얼어 죽겠다.
+I'm roasting. 너무 더워서 팍팍 익는다 익어.
+I'm pumping iron. 근력 운동 중이야~
+I have a stomach made of steel. 나 강철 위장이야.
+I have a sweet tooth. 난 달달한 거 좋아하잖아~
+(It's) Not my cup of tea. 내 취향이 아니야.
+I'm thrilled. 엄청 흥분돼!! (좋아 죽겠어!)
+I'm over the moon. 좋아 죽어요~
+on point 완전 딱이네!
+wide-eyed 눈만 땡그랗게 뜨고~
+as angry as a bull 진짜 노발대발했어!
