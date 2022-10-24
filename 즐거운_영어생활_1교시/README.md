@@ -97,8 +97,16 @@ wide-eyed 눈만 땡그랗게 뜨고~
 as angry as a bull 진짜 노발대발했어!
 
 ### 11. 걔는 다 가졌어.
-I need a boyfriend.
-What about Minho?
-You're kidding, right?
-You don't know anything about him. `He's got the whole package.`
+I need a boyfriend.  
+What about Minho?  
+You're kidding, right?  
+You don't know anything about him. `He's got the whole package.`  
 https://github.com/ziippy/English/blob/main/즐거운_영어생활_1교시/mp3/11-3.MP3?raw=true
+
+### 12. 쫄지 마!
+Did you ask him on a date?  
+I wanted to. But I got a little nervous.  
+`Stop being a chicken` and just do it.  
+What do I say? Help me out here.  
+https://github.com/ziippy/English/blob/main/즐거운_영어생활_1교시/mp3/12-3.MP3?raw=true
+
