@@ -83,18 +83,18 @@ https://github.com/ziippy/English/blob/main/즐거운_영어생활_1교시/mp3/1
 
 ### More Expressions 2  
 *날씨 및 컨디션,감정*  
-I'm feeling under the weather. 몸이 좀 안 좋네.
-I'm freezing my face off. 얼어 죽겠다.
-I'm roasting. 너무 더워서 팍팍 익는다 익어.
-I'm pumping iron. 근력 운동 중이야~
-I have a stomach made of steel. 나 강철 위장이야.
-I have a sweet tooth. 난 달달한 거 좋아하잖아~
-(It's) Not my cup of tea. 내 취향이 아니야.
-I'm thrilled. 엄청 흥분돼!! (좋아 죽겠어!)
-I'm over the moon. 좋아 죽어요~
-on point 완전 딱이네!
-wide-eyed 눈만 땡그랗게 뜨고~
-as angry as a bull 진짜 노발대발했어!
+I'm feeling under the weather. 몸이 좀 안 좋네.  
+I'm freezing my face off. 얼어 죽겠다.  
+I'm roasting. 너무 더워서 팍팍 익는다 익어.  
+I'm pumping iron. 근력 운동 중이야~  
+I have a stomach made of steel. 나 강철 위장이야.  
+I have a sweet tooth. 난 달달한 거 좋아하잖아~  
+(It's) Not my cup of tea. 내 취향이 아니야.  
+I'm thrilled. 엄청 흥분돼!! (좋아 죽겠어!)  
+I'm over the moon. 좋아 죽어요~  
+on point 완전 딱이네!  
+wide-eyed 눈만 땡그랗게 뜨고~  
+as angry as a bull 진짜 노발대발했어!  
 
 ### 11. 걔는 다 가졌어.
 I need a boyfriend.  
