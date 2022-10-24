@@ -78,7 +78,7 @@ https://github.com/ziippy/English/blob/main/즐거운_영어생활_1교시/mp3/0
 The forecast is calling for snow this weekend.  
 Oh, it'll be the first snow of the year. How exciting!  
 It's not like you have a date.  
-`I don't need a reality check.`
+`I don't need a reality check.`  
 https://github.com/ziippy/English/blob/main/즐거운_영어생활_1교시/mp3/10-3.MP3?raw=true
 
 ### More Expressions 2  
