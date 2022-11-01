@@ -110,3 +110,10 @@ I wanted to. But I got a little nervous.
 What do I say? Help me out here.  
 https://github.com/ziippy/English/blob/main/즐거운_영어생활_1교시/mp3/12-3.MP3?raw=true
 
+### 13. 영혼 좀 담아서 말해봐!
+Yor're dressed up!  
+I have a date after work. How do I look?  
+You look gorgeous.  
+`Say it like you mean it!`  
+https://github.com/ziippy/English/blob/main/즐거운_영어생활_1교시/mp3/13-3.MP3?raw=true
+
