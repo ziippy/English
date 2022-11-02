@@ -117,3 +117,9 @@ You look gorgeous.
 `Say it like you mean it!`  
 https://github.com/ziippy/English/blob/main/즐거운_영어생활_1교시/mp3/13-3.MP3?raw=true
 
+### 14. 너나 잘해!
+Tell me all about your first date!  
+He was sweet. But his looks aren't exactly my type.  
+Look don't last forever, my friend.  
+`Look who's talking!`  
+https://github.com/ziippy/English/blob/main/즐거운_영어생활_1교시/mp3/14-3.MP3?raw=true
