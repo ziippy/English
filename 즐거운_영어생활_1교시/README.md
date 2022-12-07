@@ -130,3 +130,10 @@ Your first date with Suji!
 I'm nervous already. Do you think I con do this?  
 `Just remember to shower her with complements!!`  
 https://github.com/ziippy/English/blob/main/즐거운_영어생활_1교시/mp3/15-3.MP3?raw=true
+
+### 16. 걔 보기랑 달라.
+I met Suji for the first time yesterday. She's hot!  
+`Don't be fooled by her looks`  
+What am I missing?  
+Let me tell you who she really is.  
+https://github.com/ziippy/English/blob/main/즐거운_영어생활_1교시/mp3/16-3.MP3?raw=true
