@@ -131,6 +131,17 @@ I'm nervous already. Do you think I con do this?
 `Just remember to shower her with complements!!`  
 https://github.com/ziippy/English/blob/main/즐거운_영어생활_1교시/mp3/15-3.MP3?raw=true
 
+### More Expressions 3  
+*연애코치*  
+husband material  좋은 신랑감이야  
+womanizer 바람둥이야  
+couple goals 모든 커블의 워너비다  
+on and off 만났다 헤어졌다 반복  
+leading her on 희망 고문  
+rip off the band-aid 당장 빨리 말해  
+whipped 너무 잡혀 사네  
+one's better half 자신의 반쪽  
+
 ### 16. 걔 보기랑 달라.
 I met Suji for the first time yesterday. She's hot!  
 `Don't be fooled by her looks`  
