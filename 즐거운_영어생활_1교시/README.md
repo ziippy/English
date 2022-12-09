@@ -148,3 +148,10 @@ I met Suji for the first time yesterday. She's hot!
 What am I missing?  
 Let me tell you who she really is.  
 https://github.com/ziippy/English/blob/main/즐거운_영어생활_1교시/mp3/16-3.MP3?raw=true
+
+### 17. 나이는 숫자일 뿐.
+I can't believe I'm turning thirty next week.  
+`Age is just a number.`  
+I still feel and think like a teenager.  
+And you really look younger every time I see you!  
+https://github.com/ziippy/English/blob/main/즐거운_영어생활_1교시/mp3/17-3.MP3?raw=true
