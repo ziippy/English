@@ -155,3 +155,10 @@ I can't believe I'm turning thirty next week.
 I still feel and think like a teenager.  
 And you really look younger every time I see you!  
 https://github.com/ziippy/English/blob/main/즐거운_영어생활_1교시/mp3/17-3.MP3?raw=true
+
+### 18. 네가 아까워.
+I broke up with Suji.  
+Oh. What happened?  
+She cheated on me.  
+It's a good thing you dumped her. `You really deserve better.` (너는 그 이상의 자격이 있어)  
+https://github.com/ziippy/English/blob/main/즐거운_영어생활_1교시/mp3/18-3.MP3?raw=true
