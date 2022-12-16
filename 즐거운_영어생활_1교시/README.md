@@ -162,3 +162,10 @@ Oh. What happened?
 She cheated on me.  
 It's a good thing you dumped her. `You really deserve better.` (너는 그 이상의 자격이 있어)  
 https://github.com/ziippy/English/blob/main/즐거운_영어생활_1교시/mp3/18-3.MP3?raw=true
+
+### 19. 나 걔한테 관심 있어.
+`I have a crush on Sua`, but I don't know how to tell her.  
+How about a small gift?  
+That's a good idea. Actions speak louder than words, right?  
+Yup.  
+https://github.com/ziippy/English/blob/main/즐거운_영어생활_1교시/mp3/19-3.MP3?raw=true
