@@ -169,3 +169,10 @@ How about a small gift?
 That's a good idea. Actions speak louder than words, right?  
 Yup.  
 https://github.com/ziippy/English/blob/main/즐거운_영어생활_1교시/mp3/19-3.MP3?raw=true
+
+### 20. 자책하지 마.
+Sua turned me down.  
+Oh man. I'm sorry to hear that.  
+Now we can't even be friends. I ruined the whole thing.  
+`Don't beat yourself up about it.`  
+https://github.com/ziippy/English/blob/main/즐거운_영어생활_1교시/mp3/20-3.MP3?raw=true
