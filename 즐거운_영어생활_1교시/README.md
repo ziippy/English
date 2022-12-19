@@ -133,7 +133,7 @@ https://github.com/ziippy/English/blob/main/즐거운_영어생활_1교시/mp3/1
 
 ### More Expressions 3  
 *연애코치*  
-husband material  좋은 신랑감이야  
+husband material 좋은 신랑감이야  
 womanizer 바람둥이야  
 couple goals 모든 커블의 워너비다  
 on and off 만났다 헤어졌다 반복  
@@ -176,3 +176,18 @@ Oh man. I'm sorry to hear that.
 Now we can't even be friends. I ruined the whole thing.  
 `Don't beat yourself up about it.`  
 https://github.com/ziippy/English/blob/main/즐거운_영어생활_1교시/mp3/20-3.MP3?raw=true
+
+### More Expressions 4  
+*마음나누기*  
+take it hard '받아들이기 힘들어 하다'  
+Just shake it off '그냥 잊어버려. 흔들어서 떨궈버려'  
+It's the thought that counts. '마음이 중요한거지~'  
+walk in one's shoes '누군가의 입장에서 생각해' ex) walk in my shoes (내 입장에서 생각해 봐)  
+Just put one foot in front of the other '그냥 한 발을 다른 발 앞에 놓아. -> 급하게 하지 말고 차근차근 해'  
+Hang it there. '포기하지마. 잘 견뎌봐.'  
+Don't sweet the small stuff '작은 일에 땀 빼지마. -> 그런 사소한거에 신경쓰지마'  
+You light up the room '너는 방을 환하게 한다 -> 너는 주위를 환하게 해'  
+On a scale of 1 to 10, you're an 11 '10점 만점에 11점이야. 너는 타의 추종을 불허해'  
+You're one of a kind '너는 정말 특별해'  
+good listener '경청하는 사람. 잘 들어주는 사람'  
+beautiful on the inside '마음이 예쁜~'
