@@ -191,3 +191,10 @@ On a scale of 1 to 10, you're an 11 '10점 만점에 11점이야. 너는 타의 
 You're one of a kind '너는 정말 특별해'  
 good listener '경청하는 사람. 잘 들어주는 사람'  
 beautiful on the inside '마음이 예쁜~'
+
+### 21. 지금 해보자는 거야?
+You got a haircut!  
+How do I look? I've always wanted to try a bob.  
+It looks kind of like a helmet.  
+Hey, `you trying to start something?`  
+https://github.com/ziippy/English/blob/main/즐거운_영어생활_1교시/mp3/21-3.MP3?raw=true
