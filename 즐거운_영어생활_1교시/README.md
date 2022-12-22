@@ -198,3 +198,10 @@ How do I look? I've always wanted to try a bob.
 It looks kind of like a helmet.  
 Hey, `you trying to start something?`  
 https://github.com/ziippy/English/blob/main/즐거운_영어생활_1교시/mp3/21-3.MP3?raw=true
+
+### 22. 몇 킬로 빼보려고.
+I'm starving.  
+It's two in the afternoon. Didn't you have lunch?  
+Actually, I'm on a diat. `I'm trying to drop a few kilos.`  
+Are you serious? You look great as it is!  
+https://github.com/ziippy/English/blob/main/즐거운_영어생활_1교시/mp3/22-3.MP3?raw=true
