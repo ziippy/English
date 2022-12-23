@@ -205,3 +205,10 @@ It's two in the afternoon. Didn't you have lunch?
 Actually, I'm on a diat. `I'm trying to drop a few kilos.`  
 Are you serious? You look great as it is!  
 https://github.com/ziippy/English/blob/main/즐거운_영어생활_1교시/mp3/22-3.MP3?raw=true
+
+### 23. 뭔 개소리세요?
+My plan is to have one meal every other day.  
+`What kind of crap are you spewing?`  
+I'm on a diat.  
+Your plan sucks.  
+https://github.com/ziippy/English/blob/main/즐거운_영어생활_1교시/mp3/23-3.MP3?raw=true
