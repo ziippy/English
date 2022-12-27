@@ -212,3 +212,10 @@ My plan is to have one meal every other day.
 I'm on a diat.  
 Your plan sucks.  
 https://github.com/ziippy/English/blob/main/즐거운_영어생활_1교시/mp3/23-3.MP3?raw=true
+
+### 24. 얼굴에 뭐가 엄청 올라와.
+`My face is breaking out.`  
+Have you been stressed out lately?  
+That, and I probably haven't been sleeping enough.  
+Maybe you should aso avoid oily food.  
+https://github.com/ziippy/English/blob/main/즐거운_영어생활_1교시/mp3/24-3.MP3?raw=true
