@@ -219,3 +219,10 @@ Have you been stressed out lately?
 That, and I probably haven't been sleeping enough.  
 Maybe you should aso avoid oily food.  
 https://github.com/ziippy/English/blob/main/즐거운_영어생활_1교시/mp3/24-3.MP3?raw=true
+
+### 25. 얼굴에서 빛이 난다.
+`You are glowing today!`  
+Thanks.  
+What did you do?  
+Oh, I've been using this face pack and it really works for me.  
+https://github.com/ziippy/English/blob/main/즐거운_영어생활_1교시/mp3/25-3.MP3?raw=true
